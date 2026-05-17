@@ -1,10 +1,10 @@
-آلي CyberGhost تطبيق | خوادم عالية السرعة + دعم PPTP هو أفضل CyberGhost تطبيق مع خوادم عالية السرعة و دعم PPTP. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/cyberghost-ol92/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
