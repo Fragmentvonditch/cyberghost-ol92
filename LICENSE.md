@@ -1,10 +1,10 @@
-Automatic CyberGhost App | high-speed servers + PPTP support is the best CyberGhost app with high-speed servers and PPTP support. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/cyberghost-ol92/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
